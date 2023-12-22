@@ -1,4 +1,4 @@
-Výzkumné otázky a odpovědi
+Výzkumné otázky a odpovědi - Zuzana Němečková (discord zuzana0874)
     
 VO1: Rostou v průběhu let mzdy ve všech odvětvích, nebo v některých klesají?
 Ve většině odvětvích mzdy celkově rostou, zvláště ve srovnání výchozího a posledního roku. Nicméně u následujících odvětví mzdy v některé roce i klesly: 
